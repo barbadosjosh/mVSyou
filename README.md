@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Am totally not arab
+- 👋 Hi, I’m @Amtotallynotarab
 - 
 - 👀 I’m interested in https://Shellshockers.io and TV am also Bisexual.
 
