@@ -1,11 +1,10 @@
 - 👋 Hi, I’m @Am totally not arab
 - 
-- 👀 I’m interested in https://Shellshockers.io and TV am also a tom-boy meaning=
+- 👀 I’m interested in https://Shellshockers.io and TV am also Bisexual.
 
 
 
-A tomboy is a girl who exhibits characteristics or behaviors considered typical of a boy. Common characteristics include wearing masculine clothing and engaging in 
-games and activities that are physical in nature and are considered in some cultures to be … and irdc about nasty pedos or liars ¬>¬ 
+ So basically Am just your or a Bisexual Friend and tbh  irdc about nasty pedos or liars ¬>¬ 
 - 
 🌱 I’m currently learning ... spanish and french at secondary school....
 - 
